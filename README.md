@@ -1,2 +1,2 @@
 # albus_bio_fabrics
-fabric sale from Benin to anywhere
+Fabric sale in and from Benin to anywhere
